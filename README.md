@@ -7,4 +7,4 @@ This was a little project that I had in my MITxPRO course. The exercise was to m
 
 ## SUPPORT
 
-If you have any questions about this exercise contact me at tschanzvera@gmail.com
+If you have any questions about this exercise contact me at www.linkedin.com/in/vera-tschanz-500258a2
